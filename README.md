@@ -14,16 +14,17 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 
 ## Crash on my couch
-I have no permanent couch at the moment. But if I would, I’d say something like this:
 
-* couch in Berlin-Kreuzberg, near cool spots like betahaus and c-base
-
-No need to limit length of stay or state interests, just check out people’s profiles, look at their code and discuss everything directly in the issue.
-
+* On the road -- couches likely in Seattle and around the West summer and fall 2013
 
 ## Have me crash on your couch
-Your next travels where you need a couch go in here, like:
 
-* May 6 – 12 in Berlin
-* June 3 – ? in Munich
+* apr 15-20 - new york
+* apr 20-25 - rural vermont and maine
+* apr 25-30 - toronto
+* may 1-8 - detroit
+* may 8-15 - santa fe
 
+* jun 15-20 - I80 WA to MA
+* jun 20-30 - Boston
+* July 1-5 - I90 MA to WA
