@@ -19,12 +19,12 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Have me crash on your couch
 
-* apr 15-20 - new york
+* apr 15-20 - new york (staying in Williamsburg -- seven on seven saturday ?)
 * apr 20-25 - rural vermont and maine
 * apr 25-30 - toronto
 * may 1-8 - detroit
 * may 8-15 - santa fe
 
-* jun 15-20 - I80 WA to MA
-* jun 20-30 - Boston
-* July 1-5 - I90 MA to WA
+* jun 15-20 - I80 WA to MA ** with life sized shark pinatas !! **
+* jun 20-30 - Boston -- MFA finale with http://missmollymacmacmac.org
+* July 1-5 - I90 MA to WA ++ Detroit ??
