@@ -15,9 +15,17 @@ It’s like CouchSurfing, except CouchSurfing sucks. So does AirBnB, hostels and
 
 ## Crash on my couch
 
-* On the road -- couches likely in Seattle and around the West summer and fall 2013
+* 2014 -- Couch available !! Silver Lake, Los Angeles
+* 2013 -- On the road -- couches likely in Seattle and around the West summer and fall 2013
 
 ## Have me crash on your couch
+
+2014 -- 
+
+* Feb / Mar -- Have two bus tickets to burn to Las Vegas or SF before March 31st ??
+* San Diego / Tijuana and South -- Planning trips ... anybody out there ??
+
+2013 -- 
 
 * apr 15-20 - new york (staying in Williamsburg -- seven on seven saturday ?)
 * apr 20-25 - rural vermont and maine
